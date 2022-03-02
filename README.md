@@ -1,6 +1,6 @@
 ### Hola soy Tania Rivas
 
-- 👩‍🎓 Me llaman **Taty**
+- 👩‍🎓   Me dicen Taty
 <br>
 - 🦋 Estoy trabajando como community manager en una pagina de tejido. Ademas de tejer y bordar 🧶🧵.
 <br>
